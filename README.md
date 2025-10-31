@@ -1,3 +1,4 @@
+![17618958834405565156495397213311](https://github.com/user-attachments/assets/97ace8a0-651b-4c73-983b-78da32fe62c3)
 
 # https-www.scribd.com-document-775825974-Meal-Specs-Coding-Instructions
 https://www.scribd.com/document/775825974/Meal-Specs-Coding-Instructions
